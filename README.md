@@ -1,2 +1,0 @@
-# chatpaslalessive.github.com
-Brjrjfjrjr
